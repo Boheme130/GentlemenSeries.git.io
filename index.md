@@ -17,6 +17,7 @@ Ash独自一人来到了Francis的住所，想要乞讨回死姑的遗产。然�
 ## 系列1
 书名：A Fashioanebl Indulgence <br>
 评分：4.5/5
+
 Ash和Francis最后走到了一起，但这只是Gentlemen系列的前传(Book 0.5)。Ash和Francis作为1810s的txl男子，他们都被幕后的Richard勋爵联络起来。Richard利用自己的权势设立了一个私人俱乐部，用这个社交圈将他关心的上流阶层txl男子保护起来。这个圈子的人相互帮助支持，而外人却对里面的秘密一无所知。
 
 这个圈子的核心有三个人物，贵族勋爵Richard Vane, 托利党保守派高官Dominic, 退伍花花公子Julius。Richard和Dominic, Julius都谈过恋爱，但都以惨败告终。他们三人曲折的爱情分别是这个系列的三部书。
@@ -26,6 +27,7 @@ Ash和Francis最后走到了一起，但这只是Gentlemen系列的前传(Book 0
 ## 系列2
 书名：A Seditious Affair <br>
 评分：4.75/5
+
 Harry和Julius终成眷属，下一个轮到了Dominic (Book 2). Dominic和Richard都曾深爱对方，然而Dominic有一个难以启齿的性癖：他非常非常喜欢做奴，做爱时必须被施加暴力。当他想让Richard调教他时，活在1808年的Richard感到十分恶心，两人的爱情就这样在十年前结束了。
 
 幸运的是，Dominic通过中间人介绍找到了他床上的主人Silas。两人每周三都进行幽会，但一年过去了，两人都没有透露各自的名字。两人阶级和政见明显不同，Dominic是一个保守托利党贵族高官，专门逮捕革命人士，Silas是工人阶级，充满了民主思想，认为国家是一个暴政工具。然而两人身份的差异，让Dominic跪在Silas脚下让他调教时更加刺激。
@@ -35,6 +37,7 @@ Harry和Julius终成眷属，下一个轮到了Dominic (Book 2). Dominic和Richa
 ## 系列3
 书名：A Gentleman's Position <br>
 评分：5/5
+
 最终，Dominic和Silas突破了阶级和政治的隔阂走到了一起，但Richard在为朋友高兴的同时，看到他们却心痛无比(Book 3). Richard身上有太多的责任，他不仅要保护自己的家族，还要保护他这个秘密的社交圈。因此他循规蹈矩，不敢越雷池半步。他无可挽回地爱上了自己的贴身男仆Cyprian多年，尽管知道对方深爱自己，他仍然不敢跨越边界。
 
 就像Dominic和Silas，Richard和Cyprian有着巨大的阶级差异，但Richard天性并不能像Dominic一样为爱打破一切。从第一部书开始，他就不断暗示他和Cyprian之间的爱情可望不可即。当他周围的人一对接一对克服困难走到一起，Richard仍然顽固不化。然而一个契机让两人的关系出现了转折。
