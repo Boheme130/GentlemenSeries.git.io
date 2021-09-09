@@ -3,7 +3,7 @@
 <br>
 <br>
 
-##系列0.5
+## 系列0.5
 书名：The Ruin of Gabriel Ashleigh <br>
 作者：KJ Charles <br>
 评分：4.5/5 <br>
@@ -14,7 +14,7 @@
 
 Ash独自一人来到了Francis的住所，想要乞讨回死姑的遗产。然而，Francis要求再用扑克赌注，身无分文的Ash面露难色，但Francis却要Ash用他身上的衣服来作赌。然而Ash仍然一输再输，Francis在扑克局上一声令下，没过多久Ash就连衣服都没得穿了，当Francis提出用Ash的屁股偿债时，Ash不知如何选择…..
 
-##系列1
+## 系列1
 书名：A Fashioanebl Indulgence <br>
 评分：4.5/5
 Ash和Francis最后走到了一起，但这只是Gentlemen系列的前传(Book 0.5)。Ash和Francis作为1810s的txl男子，他们都被幕后的Richard勋爵联络起来。Richard利用自己的权势设立了一个私人俱乐部，用这个社交圈将他关心的上流阶层txl男子保护起来。这个圈子的人相互帮助支持，而外人却对里面的秘密一无所知。
@@ -23,7 +23,7 @@ Ash和Francis最后走到了一起，但这只是Gentlemen系列的前传(Book 0
 
 幸运首先来敲的是Julius的门(Book 1)。1819年，Harry是革命军的孩子，从小参与造反，但他的父亲在参加革命军前是贵族Vane家族的继承人。现在Vane家族的另一位继承人死于意外，父亲也早已去世，Richard的哥哥把Harry从他秘密工作的革命军书店中带回家族，想要把他和过去一刀两断，重新成为一个绅士当继承人。而Julius作为花花公子，被当仁不让地给予了皮格马利翁的任务，来把革命军Harry改造成一个绅士。
 
-##系列2
+## 系列2
 书名：A Seditious Affair <br>
 评分：4.75/5
 Harry和Julius终成眷属，下一个轮到了Dominic (Book 2). Dominic和Richard都曾深爱对方，然而Dominic有一个难以启齿的性癖：他非常非常喜欢做奴，做爱时必须被施加暴力。当他想让Richard调教他时，活在1808年的Richard感到十分恶心，两人的爱情就这样在十年前结束了。
@@ -32,7 +32,7 @@ Harry和Julius终成眷属，下一个轮到了Dominic (Book 2). Dominic和Richa
 
 在处理Harry被卷入的一场事件时，Dominic闯入Harry曾经工作的书店进行搜查，却发现书店主人就是他的伴侣。Silas原来是全欧洲最危险的民主共和人士之一。一个是保守派贵族，一个是造反革命党员，两人在这个最不理想的场合，知道了对方的真实身份。
 
-##系列3
+## 系列3
 书名：A Gentleman's Position <br>
 评分：5/5
 最终，Dominic和Silas突破了阶级和政治的隔阂走到了一起，但Richard在为朋友高兴的同时，看到他们却心痛无比(Book 3). Richard身上有太多的责任，他不仅要保护自己的家族，还要保护他这个秘密的社交圈。因此他循规蹈矩，不敢越雷池半步。他无可挽回地爱上了自己的贴身男仆Cyprian多年，尽管知道对方深爱自己，他仍然不敢跨越边界。
