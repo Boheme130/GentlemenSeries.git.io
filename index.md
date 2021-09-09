@@ -14,7 +14,7 @@
 
 Ash独自一人来到了Francis的住所，想要乞讨回死姑的遗产。然而，Francis要求再用扑克赌注，身无分文的Ash面露难色，但Francis却要Ash用他身上的衣服来作赌。然而Ash仍然一输再输，Francis在扑克局上一声令下，没过多久Ash就连衣服都没得穿了，当Francis提出用Ash的屁股偿债时，Ash不知如何选择…..
 
-![avatar](https://sm.ms/image/VgZHou8JfcvLStC)
+![avatar](https://i.loli.net/2021/09/10/VgZHou8JfcvLStC.jpg)
 
 
 ## 系列1
